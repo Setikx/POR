@@ -1,0 +1,3 @@
+Intel
+SEYTMEMET-TB 
+23 θώνÿ 2017 γ.  14:37:30
